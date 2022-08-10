@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Isapetpetpandaa
+- 👀 I’m interested in Friends
+- 🌱 I’m currently learning Trying coding
+- 💞️ I’m looking to collaborate on nobody
+- 📫 How to reach me: pandaisapetpet@gmail.com
